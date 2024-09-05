@@ -27,7 +27,7 @@
 
 ##
 
-<h3 align="center">☣️☢️ Manual para Supervivientes de [D-E-L-U-X-I-A] ☢️☣️</h3>
+<h3 align="center">☣️☢️ MI INTRO COOL POR QUÉ SI ☢️☣️</h3>
 
 
 
